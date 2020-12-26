@@ -1,2 +1,2 @@
 # carolina
-Carolina Roque Aranda
+Espacio dedicado a Carolina Roque Aranda
